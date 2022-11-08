@@ -1,2 +1,2 @@
-I am mastodon, i don't want to reveal my name for privacy reasons. I am currently learning intermediate python. You can meet and collaborate with me at discord, 
-You can friend me at Mr.Mastodon#9754 and message me on discord and i will reply since i'm very active there.
+I am Mastodon, Known as Mastdon on most other sites. I am a programmer who can code in Python, Java &
+ C#. I'm currently working as a freelancer and i'm trying to find work. I look forward to workin with you.
